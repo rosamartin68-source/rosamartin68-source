@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-# Hi there, I'm [Your Name] 
+# Hi there, I'm Rosa Martin 
 
  
 
-### A passionate developer from [Your City]
+### A passionate developer from Hephzibah, GA
 
  
 
