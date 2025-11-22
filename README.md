@@ -16,7 +16,7 @@
 
 *  Ask me about ...
 
-*  How to reach me: [your-email@example.com](mailto:your-email@example.com)
+*  How to reach me: rosamartin68@gmail.com
 
 *  Fun fact: ...
 
